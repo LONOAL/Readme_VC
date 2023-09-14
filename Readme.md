@@ -1,3 +1,1 @@
-
-# **Que grande ese tio**
-## jeje goz
+Literalmente pan 🍞 con mermelada 😈 miro al otro lado cruasán 🥐 con fucking café ☕️ miro al otro lado; panza 🙅🏻‍♂️ panza 💀 panza 🤣 mileurista 🤑 mileurista 🤢 mileurista 😷 es como fuuuuck 😵 yo no puedo durar mucho aquí 🙄 sabes
